@@ -78,7 +78,6 @@ Perfect! Here's the revised and **polished answer** including your new points:
 
 ## **5. How many resources are required to get a good rank? Are more books or coaching materials needed?**
 
-**Answer:**
 You **don’t need to follow multiple books or materials** to get a good rank. Focus on these two things:
 
 ### **a) Previous Year Questions (PYQs)**
